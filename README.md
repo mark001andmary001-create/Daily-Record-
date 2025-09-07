@@ -1,2 +1,2 @@
-# Daily-Record-
+# Daily-Record
 record ideas from daily reading
